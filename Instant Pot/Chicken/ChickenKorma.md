@@ -34,6 +34,8 @@ Place the chicken on top and push it down into the sauce just a little.
 
 Set it at High Pressure for 10 minutes and let it release pressure naturally.
 
+**OR COOK 4-6 HOURS ON LOW IN SLOW COOKER (AY)**
+
 Carefully take out the chicken and cut into bite size pieces.
 
 Add coconut milk and garam masala, put the chicken back in, and eat.
